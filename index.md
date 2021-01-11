@@ -1,4 +1,4 @@
-## Portfolio of Staff Suleyman Demirel University
+## Professor portfolio of Suleyman Demirel University
 
 ---
 
